@@ -16,7 +16,7 @@
 
 8. Place dough balls on parchment-lined baking sheet, leaving about 2 inches between balls.
 
-9. Place baking sheet in oven. Bake cookies until puffed nd cracked and edges have begun to set but centers are still soft (cookies will look raw in cracks and seem underdone), about 11 minutes.
+9. Place baking sheet in oven. Bake cookies until puffed and cracked and edges have begun to set but centers are still soft (cookies will look raw in cracks and seem underdone), about 11 minutes.
 
 10. Use oven mitts to remove baking sheet from oven (ask an adult for help with this.) Place baking sheet on cooling rack and let cookies cool completely on baking sheet, about 30 minutes. Serve.
 
