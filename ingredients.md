@@ -5,7 +5,7 @@
 3. 1/2 teaspoon baking powder
 4. 1/8 teaspoon baking soda
 5. 1/4 teaspoon salt
-6. /4 cup packed (5 1/4 oz) brown sugar
+6. 4 cup packed (5 1/4 oz) brown sugar
 7. 1 large egg plus 1 large egg yolk
 8. 1/2 teaspoon vanilla extract
 9. 2 oz unsweetened chocolate
